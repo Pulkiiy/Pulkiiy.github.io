@@ -1,1 +1,0 @@
-# pulkiiy.github.io
